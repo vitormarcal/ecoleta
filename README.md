@@ -1,0 +1,1 @@
+# ponto-coleta-lixo
